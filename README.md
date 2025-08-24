@@ -1,5 +1,3 @@
 - 👋 Hi, I’m @AzureyPackages
-- 👀 I’m interested in Video Editing
-- 🌱 I’m currently learning Motion Graphics
-- 📫 How to reach me: fsghelp2@gmail.com or https://discord.gg/A5rfQqhDBf
-- ⚡ Fun fact, I have a Youtube! Go Leave a Sub to help support me FREE: https://www.youtube.com/channel/UCQdUUQgKnHIB9ZQa8kfYkdQ
+- 👀 I’m interested in Following Jesus!
+- 📫 How to reach me: fsghelp2@gmail.com
